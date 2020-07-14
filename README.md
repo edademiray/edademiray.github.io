@@ -1,2 +1,0 @@
-# edademiray
-Kişisel Site
